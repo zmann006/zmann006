@@ -15,7 +15,7 @@ Hiiii💗
 
 **Thông tin liên lạc**
 
-- ⚡ Faceebok : **[Phạm Gia Mẫn](https://www.facebook/PGM.FLO)**
+- ⚡ Faceebok : **[Phạm Gia Mẫn](https://m.facebook.com/profile.php?id=100005732804376&ref=content_filter)**
 - ⚡ Gmail : **[zmann006@gmail.com@gmail.com](https://gmail.com)**
 - ⚡ Github : **[Phạm Gia Mẫn](https://github.com/zmann006)**
 - ⚡ Zalo: **[Phạm Gia Mẫn](0352479495)**
